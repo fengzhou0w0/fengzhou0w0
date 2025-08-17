@@ -1,4 +1,7 @@
-## Hi there 👋
+# fengzhou0w0
+
+> freedom  
+> nothing else matters 0w0
 
 <!--
 **fengzhou0w0/fengzhou0w0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
