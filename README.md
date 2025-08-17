@@ -1,4 +1,4 @@
-# fengzhou0w0
+# 你好/Hello/Hola/Bonjour/Hallo/こんにちは/안녕하세요/Ciao/مرحبا
 
 > freedom  
 > nothing else matters 0w0
